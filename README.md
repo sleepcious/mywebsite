@@ -1,2 +1,2 @@
 # mywebsite
-learning purpose with team
+tolong dong bantuin bikin web gw jd keren
